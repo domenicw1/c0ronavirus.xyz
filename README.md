@@ -1,2 +1,2 @@
-# coronavirus.bgpvp.xyz
+# c0ronavirus.xyz
 jokes about coronavirus
